@@ -1,1 +1,0 @@
-# pinechay.ppc
